@@ -18,3 +18,7 @@
 [SPPnet学习笔记](https://blog.csdn.net/Killer_kali/article/details/123312761)
 
 [YOLOv1学习笔记](https://blog.csdn.net/Killer_kali/article/details/123297168)
+
+dogvscat_ob:
+
+[蓝奏云链接](https://wwp.lanzouf.com/iWQjn086tqkf) 密码:7f6z
